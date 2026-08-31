@@ -82,7 +82,7 @@ Dr. D. Y. Patil Arts, Commerce & Science College | 2025
 
 📧 **Email:** [mosesgaikwad1404@gmail.com](mailto:mosesgaikwad1404@gmail.com)
 
-🔗 **LinkedIn:** [Coming soon](https://www.linkedin.com/in/moses-gaikwad-5619b4432/)
+🔗 **LinkedIn:** [Profile](https://www.linkedin.com/in/moses-gaikwad-5619b4432/)
 
 ---
 
